@@ -1,2 +1,2 @@
 # remote-control
-https://youtu.be/8SGTQwB6vT0
+https://www.youtube.com/watch?v=8SGTQwB6vT0
